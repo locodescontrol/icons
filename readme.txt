@@ -1,3 +1,0 @@
-#Christofer
-
-JunidDeveloper web
